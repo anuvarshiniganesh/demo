@@ -8,3 +8,5 @@ My father's name is P.Ganeshmoorthy and he is a company employee and he has comp
 My mother's name is G.Kasthuri and she is a home maker and she has cmpleted 8th std.
 my brother's name is G.Nitheesh and he is studying in 10th std.
 I am the first graduate in my family.
+My role model is actor Surya because he is providing education for many poor kids in free of cost and according to me providing
+education to people is the first duty of every citizen.
